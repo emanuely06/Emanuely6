@@ -16,4 +16,8 @@ Gosto de ouvir música principalmente rock
 
 Minhas bandas preferida são: System Of A Down, Black Sabbath e Metallica 
 
+Futuramente pretendo me tornar uma perita criminal
+
 entre em contato comigo em: emanuely.vendruscolo@escola.pr.gov.br
+
+![](
