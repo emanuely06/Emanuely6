@@ -4,4 +4,11 @@ Bem-vindo ao meu perfil🤍
 
 °estou estudando na [Alura](https://www.alura.com.br/)
 
-Meu nome é Emanuely Vendruscolo e sou uma estudante do 1°ano em um colégio situado em Astorga(pr)
+Meu nome é Emanuely Vendruscolo 
+
+Tenho 14 anos 
+
+Sou estudante do 1°ano do ensino médio 
+
+Meu hobbie é ler 
+
