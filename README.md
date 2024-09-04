@@ -12,3 +12,8 @@ Sou estudante do 1°ano do ensino médio
 
 Meu hobbie é ler 
 
+Gosto de ouvir música principalmente rock
+
+Minhas bandas preferida são: System Of A Down, Black Sabbath e Metallica 
+
+entre em contato comigo em: emanuely.vendruscolo@escola.pr.gov.br
