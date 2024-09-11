@@ -20,4 +20,7 @@ Futuramente pretendo me tornar uma perita criminal
 
 entre em contato comigo em: emanuely.vendruscolo@escola.pr.gov.br
 
-![](https://media1.tenor.com/m/5F7Y-b9HydgAAAAd/cellbit-chewing.gif)
+![](https://media.tenor.com/5RVBUgdZkLwAAAAM/alan.gif)
+
+
+![](https://media.tenor.com/3Xg_HnwuvYkAAAAi/doglongface.gif)
